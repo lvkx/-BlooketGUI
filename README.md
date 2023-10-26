@@ -1,4 +1,4 @@
 # -BlooketGUI
 cool blooket hacks that are cool.
-foudned by c00lkids
+founded by c00lkids
 on gangyyyyyyy
